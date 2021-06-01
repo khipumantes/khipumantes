@@ -1,4 +1,4 @@
-NEOQUIPUCAMAYOC MANIFESTO FROM THE TECHNOKHIPUMANCY
+MANIFESTO NEOKHIPUKAMAYOQ DESDE LA TECNOKHIPUMANCIA - NEOKHIPUKAMAYOQ MANIFESTO
 
 <!---
 khipumantes/khipumantes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
